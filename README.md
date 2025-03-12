@@ -1,0 +1,2 @@
+# szolanc
+Dorina Enikő Panna
